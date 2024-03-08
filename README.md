@@ -2,7 +2,7 @@
 - 👀 I’m interested in hack
 -  ...
 - 🌱 I’m currently learning the wifi and internet and dark web an flipper 0
-- 💞️ I’m looking to collaborate of the yolos
+- =🍕Long live the yolo
 i like memes and video games
 
 <!---
