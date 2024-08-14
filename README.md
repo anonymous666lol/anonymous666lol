@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @anonymous666lol
-- 👀 I’m interested in hack
+- 👀 I’m interested in hack and programation 
 -  ...
-- 🌱 I’m currently learning the wifi and internet and dark web an flipper 0
+- 🌱 I’m currently learning the wifi and internet and  htmlan flipper 0
 - =🍕Long live the yolo
-i like memes and video games
+i like memes and video games and minecraft
 
 <!---
 anonymous666lol/anonymous666lol is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
